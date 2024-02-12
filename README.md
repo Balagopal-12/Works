@@ -1,0 +1,1 @@
+I am a final year CS student, trying to find his passion in coding. I am more involved in AI based coding and try everyday to make myself better. These projects are a very basic models of what can be turned into something bigger and better. I always welcome help or partners willing to make bigger and better projects.
